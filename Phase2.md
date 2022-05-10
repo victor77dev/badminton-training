@@ -1,6 +1,6 @@
 # Phase 2
 
-We learnt the basics in previous weeks. Of course, we need to keep practicing the basics. But we can add more.
+We learnt the basics in previous weeks. Of course, we need to keep practicing the basics. But we can add more footwork practice.
 
 ## Key Ideas
 - It's still focusing on doing it right
