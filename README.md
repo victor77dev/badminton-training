@@ -19,6 +19,8 @@ We will go with the following steps
 4. Be patient and repeat the same movement a lot
 Then after that you will better and you can check the advance level training from Fadi and Ajay
 
+[Phase 2](Phase2.md)
+
 ## Schedule
 Planning for Wednesday & Saturday/Sunday each week (at least for few months).
 
